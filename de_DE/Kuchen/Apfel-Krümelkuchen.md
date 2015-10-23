@@ -20,11 +20,12 @@ Füllung:
 
 ## Anleitung
 
-Für den Teig, alle Zutaten in einer Schüssel geben und mit den Händen gut
-zusammenmischen.  Die Butter mit den Händen weich machen und zerkleinern,
-damit sie gut mit den anderen Zutaten gemischt wird.  Wenn die Butter gut
-eingemischt ist, den Teig mit den Knethaken eines Handmixers oder einer
-Küchenmaschine zu einem Streuselteig verarbeiten.
+Für den Teig, alle Trockenzutaten und die Butter in einer Schüssel geben und
+mit den Händen gut zusammenmischen.  Die Butter mit den Händen weich machen
+und zerkleinern, damit sie gut mit den anderen Zutaten gemischt wird.  Wenn
+die Butter gut eingemischt ist, die Eier dazugeben und den Teig mit den
+Knethaken eines Handmixers oder einer Küchenmaschine zu einem Streuselteig
+verarbeiten.
 
 Etwa ⅔ - ¾ des Teigs nehmen und in eine gefettete Springform (etwa 27cm Ø)
 andrücken.  Der Teig soll etwa 4-5cm hoch am Rande sein.
