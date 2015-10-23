@@ -42,5 +42,5 @@ Der restliche Streuselteig über die Füllung zerkleinern und zerstreuen.
 Zusätzlich kann man auch Mandelscheiben darüberstreuen.
 
 In den Ofen stellen und auf einem Rost in der unterste Einschubleiste bei
-200°C etwa 45 Minuten backen, oder bis die Füllung schön gar ist und der
-Krümel auf dem Kuchen gut gebräunt ist.
+200°C und Ober-Unterhitze etwa 45 Minuten backen, oder bis die Füllung schön
+gar ist und der Krümel auf dem Kuchen gut gebräunt ist.
