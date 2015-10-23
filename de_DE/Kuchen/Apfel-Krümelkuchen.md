@@ -6,7 +6,7 @@ Teig:
 
   - 500g Weizenmehl
   - 100g Dinkelvollkornmehl
-  - 1 ⅓ Päckchen Backpulver
+  - 1 ½ Päckchen Backpulver
   - 300g Zucker
   - 1 Prise Salz
   - 1 Päckchen Vanillinzucker
