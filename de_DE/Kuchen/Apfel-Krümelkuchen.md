@@ -12,8 +12,8 @@ Teig:
   - 300g Zucker
   - 1 Prise Salz
   - 1 Päckchen Vanillinzucker
-  - 3 Eier
   - 200g Butter
+  - 3 Eier
 
 Füllung:
 
@@ -26,8 +26,7 @@ Für den Teig, alle Trockenzutaten und die Butter in einer Schüssel geben und
 mit den Händen gut zusammenmischen.  Die Butter mit den Händen weich machen
 und zerkleinern, damit sie gut mit den anderen Zutaten gemischt wird.  Wenn
 die Butter gut eingemischt ist, die Eier dazugeben und den Teig mit den
-Knethaken eines Handmixers oder einer Küchenmaschine zu einem Streuselteig
-verarbeiten.
+Knethaken eines Mixers zu einem Streuselteig verarbeiten.
 
 Etwa ⅔ - ¾ des Teigs nehmen und in eine gefettete Springform (etwa 27cm Ø)
 andrücken.  Der Teig soll etwa 4-5cm hoch am Rande sein.
