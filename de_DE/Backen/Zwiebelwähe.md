@@ -5,9 +5,9 @@
 ## Zutaten
 
 1 Paket TK-Blätterteig
-4 große Zwiebeln (500-600g)
+4-5 große Gemüsezwiebeln (~1kg geschält)
 50g Butter
-50g Speckwürfel
+100g Speckwürfel
 1½ Esslöffel Mehl
 ¼ L Sahne
 2 Eier
